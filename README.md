@@ -1,0 +1,1 @@
+Kata Question 2
